@@ -5,7 +5,7 @@ She is currently an editor-at-large at the Washington Square News, where she was
  	Curbed, and the New York Times. Alex is most interested in writing on how humans
 	interact with natural and built environments, especially when birds are involved.
 
-Alex's primary mediums are the written word and the photographed image. However,
-	she sometimes dabbles in data.
+Alex's primary mediums are the written word and the photographed image.
+	She sometimes dabbles in data.
 
 You can read more and contact Alex at https://alextey.co.
