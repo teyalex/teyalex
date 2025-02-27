@@ -1,4 +1,4 @@
-Alex Tey is a is a reporter, editor, and photographer based in New York City.
+Alexandra Tey is a is a reporter, editor, and photographer based in New York City.
 
 She was the editor-in-chief of Washington Square News at New York University, where she
 	earned degrees in journalism and environmental studies. Her work has appeared in
